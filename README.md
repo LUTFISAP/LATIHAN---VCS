@@ -1,5 +1,1 @@
-### NAMA: LUTFI AS
 
-### KELAS: TI. 22. C. 9
-
-### NIM: 312210712
